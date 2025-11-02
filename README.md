@@ -12,4 +12,4 @@ Team member : Rupeshradhev R
 
 
 
-demo video link:"C:\Users\ramra\OneDrive\Ramanathan\NM Recording 2025-11-02 152440.mp4"# Naan-Mudhalvan-project
+demo video link:"https://drive.google.com/file/d/1jWP-XPbqcI3ot8wjDtrQUcQbmLHFMlig/view?usp=sharing"# Naan-Mudhalvan-project
